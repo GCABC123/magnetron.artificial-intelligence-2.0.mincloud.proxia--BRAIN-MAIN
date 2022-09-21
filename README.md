@@ -1,4 +1,4 @@
-# magnetron.artificial-intelligence-2.0.mincloud.proxia--BRAIN-MAIN-
+# magnetron.artificial-intelligence-2.0.mincloud.proxia--BRAIN-MAIN
 
 
 
